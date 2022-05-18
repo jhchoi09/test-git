@@ -1,2 +1,2 @@
 2021276 Janghoon Choi
-Kookmin Univ. AI
+Kookmin Univ. AI Dept.
